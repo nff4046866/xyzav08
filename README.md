@@ -18,4 +18,4 @@
 结语  
 选择正规、安全的平台观看日本AV影片，不仅能享受到高清、流畅的体验，还能保证你的隐私安全。优质平台会定期更新影片，确保观众始终能够看到最新的内容。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/nff4046866/xyzav08 )</span>
